@@ -1,2 +1,1 @@
-Located on the outskirts of a pretty village is this beautiful villa that offers resort style living with all the charm you would expect from an idyllic French countryside villa.
-
+La French Place is a holiday villa available for rental. 
